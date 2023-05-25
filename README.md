@@ -2,7 +2,7 @@
 
 開始做一些東西不能再混了;-;
 
-應該會再David Hsu那邊玩;-;
+應該會在David Hsu那邊玩;-;
 
 [PYTHON LEARNING](https://steam.oxxostudio.tw/category/python/ai/ai-index.html)
 
